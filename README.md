@@ -11,5 +11,19 @@ profile
 
 People see you as someone who blends warmth, family, tradition, and innovation, creating not just music but a sense of togetherness.
 
+Why Hong Kong is interesting?
+Water,real estate, shipping routes
+
+
+
+What type of trauma's does the new generation perceive
+Discussing between raising up with rich parents or poor. But let's begin.
+What does poor actually mean?
+
+1.Moving alot due career of parents 
+1.1 insecure,low self esteem, hard time trying to fit in , uncomfortable, less motivation to do social activities or do the opposites and get addicted to dopamine. Due the early period of the childhood it could lead to disrupt their nature.
+Feeling never fit in
+Certain traditions may feel offended
+Feeling isolared because you do not feel like fit in the different cultures
 
 </p>
