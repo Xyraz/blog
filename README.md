@@ -20,10 +20,10 @@ What type of trauma's does the new generation perceive
 Discussing between raising up with rich parents or poor. But let's begin.
 What does poor actually mean?
 
-1.Moving alot due career of parents 
-1.1 insecure,low self esteem, hard time trying to fit in , uncomfortable, less motivation to do social activities or do the opposites and get addicted to dopamine. Due the early period of the childhood it could lead to disrupt their nature.
-Feeling never fit in
-Certain traditions may feel offended
-Feeling isolared because you do not feel like fit in the different cultures
+1.Moving alot due career of parents <br>
+1.1 insecure,low self esteem, hard time trying to fit in , uncomfortable, less motivation to do social activities or do the opposites and get addicted to dopamine. Due the early period of the childhood it could lead to disrupt their nature<br>
+Feeling never fit in<br>
+Certain traditions may feel offended<br>
+Feeling isolared because you do not feel like fit in the different cultures<br>
 
 </p>
